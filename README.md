@@ -1,1 +1,0 @@
-# smartphonemarket.io
